@@ -1,0 +1,2 @@
+# GelismisSozluk
+(EN-TR)
